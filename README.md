@@ -1,0 +1,2 @@
+# diwali_image
+Diwali
